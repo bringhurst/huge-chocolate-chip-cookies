@@ -6,7 +6,7 @@
 - #6 cookie scoop (about 6 oz per scoop)
 - Kitchen scale
 - Spatula
-- Half sheet
+- Half sheet pan
 - Parchment paper
 - Instant-read thermometer
 

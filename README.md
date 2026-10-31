@@ -37,5 +37,5 @@
 6. **Scoop.** Fill the **#6 scoop** and scrape it level with a spatula for each portion. Gently round each portion into a ball without flattening if refrigerating OR flatten to a hockey puck like shape if freezing.
 7. **Chill.** Cover and refrigerate for **at least 12 hours** OR freeze (be sure to flatten before freezing).
 8. **Prepare to bake.** Heat the oven to **180°C (350°F), conventional**, with a rack in the middle. Line the half sheet with parchment paper. Place up to **4 chilled or frozen dough balls/pucks** on it, spaced well apart.
-9. **Bake.** Bake for **22–25 minutes**, checking from **20 minutes**, until puffed and lightly browned. Aim for **82°C (180°F)** in the center, avoiding chocolate pockets with the thermometer.
+9. **Bake.** Bake for **24–26 minutes**, checking from **20 minutes**, until puffed and lightly browned. Aim for **82°C (180°F)** in the center, avoiding chocolate pockets with the thermometer.
 10. **Cool.** Leave the cookies on the half sheet until warm and firm enough to lift. Let the pan cool before baking another batch.

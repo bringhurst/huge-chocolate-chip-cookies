@@ -21,7 +21,7 @@
 | Salt | 6 g |
 | Baking powder | 7 g |
 | Baking soda | 5 g |
-| Freshly grated nutmeg, optional | A pinch |
+| Freshly grated nutmeg, optional | A chef's pinch |
 | Eggs, cold | 100 g (about 2 large) |
 | All-purpose flour | 283 g |
 | 72% chocolate chips | 250 g |

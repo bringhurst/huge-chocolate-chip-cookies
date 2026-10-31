@@ -34,7 +34,7 @@
 2. **Cream.** Basically just follow Christina Tosi's method. Put the butter, both sugars, vanilla, salt, baking powder, baking soda, and nutmeg in the mixer bowl. Mix on speed 2 to combine, then beat on speed 4 until pale and fluffy, about **8 minutes**. Scrape the bowl halfway through.
 4. **Add the eggs.** Add the eggs one at a time, mixing well after each.
 5. **Add the flour and mix-ins.** On low speed, mix in the flour just until combined. Mix in the chocolate chips and walnuts until evenly distributed.
-6. **Scoop.** Fill the **#6 scoop** and scrape it level for each portion. Gently round each portion into a ball without flattening if refrigerating OR flatten to a hockey puck like shape if freezing.
+6. **Scoop.** Fill the **#6 scoop** and scrape it level with a spatula for each portion. Gently round each portion into a ball without flattening if refrigerating OR flatten to a hockey puck like shape if freezing.
 7. **Chill.** Cover and refrigerate for **at least 12 hours** OR freeze (be sure to flatten before freezing).
 8. **Prepare to bake.** Heat the oven to **180°C (350°F), conventional**, with a rack in the middle. Line the half sheet with parchment paper. Place up to **4 chilled or frozen dough balls/pucks** on it, spaced well apart.
 9. **Bake.** Bake for **22–25 minutes**, checking from **20 minutes**, until puffed and lightly browned. Aim for **82°C (180°F)** in the center, avoiding chocolate pockets with the thermometer.

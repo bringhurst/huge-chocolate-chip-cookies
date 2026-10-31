@@ -1,4 +1,4 @@
-# Giant Chocolate Chip Cookies
+# Giant Chocolate Chip Walnut Cookies
 
 ## Equipment
 

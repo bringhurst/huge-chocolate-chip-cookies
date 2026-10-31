@@ -3,7 +3,7 @@
 ## Equipment
 
 - KitchenAid stand mixer with flat beater
-- #6 cookie scoop
+- #6 cookie scoop (about 6 oz per scoop)
 - Kitchen scale
 - Spatula
 - Half sheet

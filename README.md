@@ -30,7 +30,7 @@
 
 ## Instructions
 
-1. **Toast the walnuts.** Heat the oven to **160°C (320°F)**. Spread the walnuts on the half sheet and toast for **12-14 minutes**, stirring halfway, until fragrant and lightly golden. Transfer to a plate and let cool completely.
+1. **Toast the walnuts.** Heat the oven to **160°C (320°F)**. Spread the walnuts on the half sheet and toast for **12-14 minutes**, until fragrant and lightly golden. Let cool completely.
 2. **Cream.** Basically just follow Christina Tosi's method. Put the butter, both sugars, vanilla, salt, baking powder, baking soda, and nutmeg in the mixer bowl. Mix on speed 2 to combine, then beat on speed 4 until pale and fluffy, about **8 minutes**. Scrape the bowl halfway through.
 4. **Add the eggs.** Add the eggs one at a time, mixing well after each.
 5. **Add the flour and mix-ins.** On low speed, mix in the flour just until combined. Mix in the chocolate chips and walnuts until evenly distributed.
